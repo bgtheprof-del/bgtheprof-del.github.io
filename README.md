@@ -1,1 +1,0 @@
-# bgtheprof-del.github.io
